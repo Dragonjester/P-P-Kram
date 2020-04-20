@@ -1,0 +1,11 @@
+Ein Thorwaller, ein Nostrianer, ein Al'Anfaner, ein Baron aus dem Mittelreich und ein Elf treffen sich zufällig weil das Schicksal es so will und ziehen dann los um die G7 Kampagne anzutreten.  Was kann da schon schief gehen? 
+
+Natürlich wird man nie ausschließen können dass es Aufgrund von unterschiedlichen Spielstylen zu Problemen kommen kann. Aber dass jeder für sich seinen Charakter erstellt, ist zumindest in meiner Erfahrung etwas das sehr oft in die Hose geht. Dann kann ich zwar nach nem viertel Jahr oder so zwar sagen dass es besser gewesen wäre auf mich zu hören und gemeinsam Charaktere zu erstellen... davon kann ich mir dann aber ein Eis backen  ::)
+
+Besser ist da schon wenn man sich etwas überlegt wie bspw. das man aus dem selben Dorf kommt und sich kennt. Aber irgendwie spielt man dann immernoch 1d6 Fremde, weil es nicht mehr als den Satz „Wir kommen aus dem Dorf Drachenzwinge“ gibt. Vielleicht hat man dann noch etwas gemacht wo man „dunkle Geheimnisse“ ausgetauscht hat, so dass man ein klein wenig über den jeweiligen Charakter des Scs erahnen kann. Dass ist dann aber schon eine aus der Masse herausglänzende Ausnahme.
+
+Leider lassen die Mainstreamsysteme sowohl die Spieler als auch die SL hier komplett alleine. Es gibt keine Werkzeuge, keine Regeln die einem helfen eine Gruppe von Leuten darzustellen, die menschlich auf die ein oder andere Weise eine Beziehung haben. Das höchste der Gefühle ist eine Erleichterung um 7 auf die Überredenprobe, wenn der Gegenüber freundschaftlich eingestellt ist.
+
+Andererseits erwartet man hier von Spielen die ob nun direkt oder indirekt von den frühen D&D Versionen inspiriert sind und niemals darauf ausgelegt waren dabei zu Unterstützen eine nach modernen Maßstäben gute Geschichte zu erzählen, vielleicht auch einfach zu viel. Wen kümmern schon die zwischenmenschlichen Beziehungen, wenn es gilt den weißen Drachen mit eiskaltem Blick zu erlegen?
+
+Glücklicherweise gibt es aber neben den Mainstreamsystemen noch eine stetig wachsende Handvoll anderer Systeme. Hier will ich mir in Zukunft einige Dinge anschauen, wie das Banden-System aus Powered by the Apocalypse, die Pathways aus dem Smallville RPG oder auch die Flags aus Fate. Nicht zwangsweise in dieser Reihenfolge  ;D
